@@ -21,7 +21,7 @@ $${\color{#d874ff}\text{ㅤㅤc+hㅤenc,ㅤaskㅤifㅤwithㅤi'mㅤfriends.}}$$ 
 
 <p align="center">
 
-$${\color{#8e49ff}\text{ISFPㅤsx/spㅤ8⁹5⁴3⁴.ㅤ,ㅤFELVㅤ.}}$$
+$${\color{#8e49ff}\text{ISFPㅤso/sp 9⁸74.ㅤ,ㅤFELVㅤ.}}$$
 
 <img src="https://file.garden/aQmhMlP8yQsnaXuD/Untitled850_20260901171717.png" width="50">
 
