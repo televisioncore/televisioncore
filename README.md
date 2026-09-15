@@ -26,3 +26,8 @@ $${\color{#8e49ff}\text{ISFPㅤso/sp 9⁸74.ㅤ,ㅤFELVㅤ.}}$$
 <img src="https://file.garden/aQmhMlP8yQsnaXuD/Untitled850_20260901171717.png" width="50">
 
 $${\color{#a959ff}\text{ㅤㅤIㅤblock/hideㅤfreely,ㅤandㅤIㅤdoㅤnotㅤhesitate.}}$$ $${\color{#ea7eff}\text{emotionallyㅤintelligentㅤ-ㅤimpliedㅤautism}}$$
+
+<img src="https://file.garden/aQmhMlP8yQsnaXuD/Untitled850_20260901171717.png" width="60">
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[kaito momota here](https://github.com/ultimateastronaut)
