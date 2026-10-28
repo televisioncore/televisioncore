@@ -16,7 +16,8 @@ ${\color{#9c4340}\text{ㅤiㅤ}}$ ${\color{#a8645f}\text{blockㅤ}}$ ${\color{#b
 
 <img src="https://file.garden/aQmhMlP8yQsnaXuD/Untitled850_20260901171717.png" width="50">
 
+${\color{#b56e6c}\text{"ㅤifㅤyourㅤsp8ㅤthenㅤthatㅤmeansㅤyourㅤanㅤabusi-ㅤ"ㅤSTFUㅤNOㅤIMㅤNOTㅤIMㅤTHEㅤMOSTㅤJOLLIESTㅤANDㅤFRIENDLYㅤSP8ㅤYOUㅤWILLㅤEVERㅤSEE}}$
+${\color{#b56e6c}\text{ㅤㅤㅤ↑ㅤyesㅤthisㅤisㅤaboutㅤtheㅤe8ㅤstereotype}}$
 
-${\color{#870f10}\text{"ㅤifㅤyourㅤsp8ㅤthenㅤthatㅤmeansㅤyourㅤanㅤabusi-ㅤ"ㅤSTFUㅤNOㅤIMㅤNOTㅤIMㅤTHEㅤMOSTㅤJOLLIESTㅤANDㅤFRIENDLYㅤSP8ㅤYOUㅤWILLㅤEVERㅤSEEㅤandㅤyesㅤthisㅤisㅤaboutㅤtheㅤe8ㅤstereotype}}$
 
 <img src="https://media.discordapp.net/attachments/1499950404728000584/1565004396092457060/Untitled913_20261028212527.png?ex=6ae3536c&is=6ae201ec&hm=5c5a2f3284659d1411068baac4ce83ffa1a2b83eb886d5c6ad6164e46ab89460&=&format=webp&quality=lossless&width=640&height=177" align="center" width="1000">
