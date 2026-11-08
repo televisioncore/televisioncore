@@ -1,14 +1,13 @@
-<img src="https://media.tenor.com/f2dg_uHGlFYAAAAM/elliot-forsaken-work-at-a-pizza-place.gif" align="center" width="200">
-
-<p align="center>
-
-placeholder lmao lmao lmao
+<img src="https://media.tenor.com/f2dg_uHGlFYAAAAM/elliot-forsaken-work-at-a-pizza-place.gif" align="center" width="500">
 
 
-. ESFJ Sp/so 297 2w3, Phleg-San ESE Fe Te Ne Se
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀placeholder lmao lmao lmao
 
 
-. c+h highly enc
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀. ESFJ Sp/so 297 2w3, Phleg-San ESE Fe Te Ne Se
 
 
-. i block freely
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀. c+h highly enc
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀. i block freely
